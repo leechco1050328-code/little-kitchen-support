@@ -1,0 +1,2 @@
+# little-kitchen-support
+ちいさなキッチンのサポートとプライバシーポリシー
